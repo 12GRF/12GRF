@@ -10,5 +10,5 @@ Meu nome é **Gabriela**
 
 @00001115789533SP@al.educacao.sp.gov.br 
 
-@pedroh.arte
+@pedroh.arte (meu namorado 💕)
 
