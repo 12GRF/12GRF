@@ -1,16 +1,14 @@
-## Hi there 👋
+### Boas Vindas ao meu perfil💕                                  
 
-<!--
-**12GRF/12GRF** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é **Gabriela**
 
-Here are some ideas to get you started:
+-Estou estudando na [Alura]_(https://www.alura.com.br)_
+-Estou me desenvolvendo na linguagem JavaScript
+-Utilizo esse espaço para minha organização e compartilhamento 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Você entra em contato comigo 📫
+
+@00001115789533SP@al.educacao.sp.gov.br 
+
+@pedroh.arte
+
