@@ -12,6 +12,4 @@ Meu nome é **Gabriela**
 
 @_gabriela.r.faria_
 
-
-
-![](https://media1.tenor.com/m/U186BEt_QJ4AAAAd/teen-wolf-edit.gif)
+![](https://media1.tenor.com/m/Hem-aWUSG9MAAAAd/teen-wolf.gif)
