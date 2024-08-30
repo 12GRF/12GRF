@@ -10,5 +10,6 @@ Meu nome é **Gabriela**
 
 @00001115789533SP@al.educacao.sp.gov.br 
 
-@pedroh.arte (meu namorado 💕)
+@_gabriela.r.faria_
 
+![](https://media1.tenor.com/m/U186BEt_QJ4AAAAd/teen-wolf-edit.gif) 
